@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Hyunworld
 - 👀 I’m interested in music, keyboard, drum, coding
-- 🌱 I’m currently learning drum!
+- 🌱 I’m currently learning drum, java language
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me as4706as@gmail.com or as4706@naver.com
 
